@@ -32,13 +32,16 @@
 
 ![image](https://github.com/user-attachments/assets/284b39ee-12ac-40cf-8929-3327ee016819)
 ![image](https://github.com/user-attachments/assets/42e1654b-d930-433d-a87b-012756b73537)
-
 ![image](https://github.com/user-attachments/assets/b06083a7-ab7b-4f61-bb69-4ad7a5cf4931)
 
 ---
 
 ### Задание 3
 
+![image](https://github.com/user-attachments/assets/981f0011-b0a7-40b5-a2da-52642e6e124e)
+![image](https://github.com/user-attachments/assets/e82ab529-738e-49b2-a69a-30c2e89d123e)
+![image](https://github.com/user-attachments/assets/7a4af2b6-0395-4215-ba23-1515be9ee13a)
+![image](https://github.com/user-attachments/assets/7e1d8041-ebca-40e6-ac3f-8676eb6cccfd)
 
 ---
 
