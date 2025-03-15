@@ -47,4 +47,6 @@
 
 ### Задание 4
 
+![image](https://github.com/user-attachments/assets/190c5be3-10ea-4c45-bef5-44741edb2e7c)
+
 ---
